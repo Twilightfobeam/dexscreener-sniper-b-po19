@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered Scanner for dexscreener sniper bot | arbitrage-opportunities & meme-coin-scanning, the #1 dexscreener sniper bot. Includes
 
 
 
